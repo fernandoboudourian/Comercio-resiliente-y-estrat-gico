@@ -1,1 +1,2 @@
-# Comercio-resiliente-y-estrat-gico
+# Comercio-resiliente-y-estratégico
+El friend-shoring está transformando el comercio internacional, priorizando alianzas entre países con valores compartidos. Este modelo ofrece estabilidad y resiliencia frente a riesgos geopolíticos y vulnerabilidades de las cadenas de suministro. Sin embargo, enfrenta desafíos como costos elevados, fragmentación económica e impacto ambiental. A pesar de ello, abre nuevas oportunidades para diversificar mercados y fortalecer la economía global.
